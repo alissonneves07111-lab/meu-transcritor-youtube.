@@ -1,1 +1,0 @@
-# meu-transcritor-youtube.
